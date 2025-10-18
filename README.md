@@ -4,7 +4,7 @@
 * repositorio creado en 2025
 
 
-## pisos y pintura
+## pisos y pintur
 
 bla bla 
 
